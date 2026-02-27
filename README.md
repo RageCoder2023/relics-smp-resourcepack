@@ -1,0 +1,1 @@
+# relics-smp-resourcepack
